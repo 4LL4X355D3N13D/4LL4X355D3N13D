@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @4LL4X355D3N13D (allaccessdenied)
-- 🙄 My old github got lost lol. Whatever. I'm back.
+- 🙄 My old github got lost lol. Whatever, there wasn't much on there. I'm back.
 - 📫 How to reach me: You can't ;)
